@@ -1,6 +1,7 @@
+- # [*introduce deweykingt*]
 - 👋 Hi, I’m @deweykingt
 - I’m interested in : to get a new pc/osu! enjoyer
-- I’m currently learning ...
+- I’m currently learning : ...
 - I’m looking to collaborate on : [literally nothing]
 - How to reach me : just feel free
 - How old are u? : you know what? i'm not telling you how old i am?
@@ -8,4 +9,5 @@
 - Skin? : Maybe later, i'll do it later(so lazy)
 - playstyle? : mouse/keyboard [mouse sensitivity : 1.17x] [keybinds : x/c]
 - osu! profile? : ok. [**osu! profile**](https://osu.ppy.sh/users/15805602)
-
+- twitter? : [**twitter**](https://twitter.com/D2WRYz)
+- discord? : **[shizorii_#0029]** 
