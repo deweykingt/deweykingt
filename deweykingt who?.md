@@ -7,7 +7,8 @@
 - How old are u? : you know what? i'm not telling you how old i am?
 - Start to play osu! since? : late 2019
 - Skin? : Maybe later, i'll do it later(so lazy)
-- playstyle? : mouse/keyboard [mouse sensitivity : 1.17x] [keybinds : x/c]
-- osu! profile? : ok. [**osu! profile**](https://osu.ppy.sh/users/15805602)
-- twitter? : [**twitter**](https://twitter.com/D2WRYz)
-- discord? : **[shizorii_#0029]** 
+- Playstyle? : mouse/keyboard [mouse sensitivity : 1.17x] [keybinds : x/c]
+- Osu! profile? : ok. [**Osu! profile**](https://osu.ppy.sh/users/15805602)
+- Twitter? : [**Twitter**](https://twitter.com/D2WRYz)
+- Twitch? : this one -> [**Twitch**](https://www.twitch.tv/d2wry)
+- Discord? : **[shizorii_#0029]** 
