@@ -1,6 +1,6 @@
 # *deweykingt Skin*
 - # DISCLAIMER!!
-[**the skin will be update if i'm not be a lazy**]
+[**the skin will be update if i won't lazy**]
 # [-++++night+faLL](https://puu.sh/F804p/828979201f.osk)
 ![](https://user-images.githubusercontent.com/120316888/208285662-6e8ec148-2132-4def-bbec-28f46d744aec.jpg)
 # [Joie's Sv9xTuna whale](https://vxc.s-ul.eu/SyY9X9YH)
