@@ -1,14 +1,14 @@
 - # [*introduce deweykingt*]
 - 👋 Hi, I’m @deweykingt
-- I’m interested in : to get a new pc/osu! enjoyer
-- I’m currently learning : ...
+- I’m interested in : osu! enjoyer/ improvement
+- I’m currently learning : english
 - I’m looking to collaborate on : [literally nothing]
 - How to reach me : just feel free
-- How old are u? : you know what? i'm not telling you how old i am?
+- How old are u? : 15-16
 - Start to play osu! since? : late 2019
-- Skin? : Maybe later, i'll do it later(so lazy)
-- Playstyle? : mouse/keyboard [mouse sensitivity : 1.17x] [keybinds : x/c]
+- Skins? : i'll update my skins but i'm too lazy. so later
+- Playstyle? : mouse/keyboard [mouse sensitivity : 1.17x] [keybinds : v/b]
 - Osu! profile? : ok. [**Osu! profile**](https://osu.ppy.sh/users/15805602)
 - Twitter? : [**Twitter**](https://twitter.com/D2WRYz)
-- Twitch? : this one -> [**Twitch**](https://www.twitch.tv/d2wry)
-- Discord? : **[shizorii_#0029]** 
+- Twitch? : this one -> [**Twitch**](https://www.twitch.tv/rustycatasfd)
+- Discord? : **[hidden information]** 
