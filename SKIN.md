@@ -11,3 +11,5 @@
 ![](https://user-images.githubusercontent.com/120316888/236655292-cdaad89f-6e96-4919-9a5b-2cf6452cfc42.jpg)
 # [- Selyu v2.2 [deweykingt edit v1.1]](https://drive.google.com/file/d/1hX_Ko84C3knW91C4-3x-RsnrYmx3mrL3/view?usp=share_link)
 ![](https://user-images.githubusercontent.com/120316888/236655361-17de474a-662e-4088-ad18-b338022a84ce.jpg)
+# [- Selyu [Tuna edit]](https://drive.google.com/file/d/1UE1ekyTTEd5jhkGfNQm0ODZgizDQMhlw/view?usp=share_link)
+![](https://github.com/deweykingt/deweykingt/assets/120316888/906434fc-f45f-4fa6-8279-763d36cf854e)
