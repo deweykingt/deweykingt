@@ -13,3 +13,5 @@
 ![](https://user-images.githubusercontent.com/120316888/236655361-17de474a-662e-4088-ad18-b338022a84ce.jpg)
 # [- Selyu [Tuna edit]](https://drive.google.com/file/d/104yRfUggLogXnHNXINqYg22U2zER0KFW/view?usp=sharing)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/906434fc-f45f-4fa6-8279-763d36cf854e)
+# [Aristia(Edit) + dewey v1](https://drive.google.com/file/d/1ULmhDAwlXNiNiPKWJSeTDndk55nXB0VG/view)
+![](https://github.com/deweykingt/deweykingt/assets/120316888/4087d531-74a1-4fa8-941a-66bff54ea073)
