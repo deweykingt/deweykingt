@@ -15,5 +15,5 @@
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/906434fc-f45f-4fa6-8279-763d36cf854e)
 # [Aristia(Edit) + dewey v1](https://drive.google.com/file/d/1ULmhDAwlXNiNiPKWJSeTDndk55nXB0VG/view)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/4087d531-74a1-4fa8-941a-66bff54ea073)
-# [MonkoGlass dewey edit(this skin is private)]
+# MonkoGlass dewey edit(this skin is private)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/d6931ac2-083d-46d9-aba8-2f4b051a5435)
