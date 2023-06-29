@@ -1,7 +1,7 @@
 # *deweykingt Skin*
 - # DISCLAIMER!!
 [**the skin will be update if i won't lazy**]
-# MonkoGlass dewey edit(this skin is private) | [but this is another version so you can take it](https://drive.google.com/file/d/1Mvwb21SzWdnSr_dN9BFcpnwQZp8IuEj_/view?usp=sharing)
+# MonkoGlass dewey edit(this skin is private if u want DM me) | [but this is another version so you can take it](https://drive.google.com/file/d/1Mvwb21SzWdnSr_dN9BFcpnwQZp8IuEj_/view?usp=sharing)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/d9d5b1b2-fee1-4b03-9904-260f849cb1d2)
 # [Aristia(Edit) + dewey v1](https://drive.google.com/file/d/1ULmhDAwlXNiNiPKWJSeTDndk55nXB0VG/view)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/4087d531-74a1-4fa8-941a-66bff54ea073)
