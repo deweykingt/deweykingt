@@ -7,7 +7,7 @@
 - How old are u? : 15-16
 - Start to play osu! since? : late 2019
 - Skins? : i'll update my skins but i'm too lazy. so later
-- Playstyle? : mouse/keyboard/tablet [mouse sensitivity(in game) : 1x] [keybinds : v/b]
+- Playstyle? : mouse/keyboard/tablet [mouse sensitivity(in game) : 1x with raw input on] [keybinds : it can be x/c or v/b]
 - Osu! profile? : ok. [**Osu! profile**](https://osu.ppy.sh/users/15805602)
 - Twitter? : [**Twitter**](https://twitter.com/D2WRYz)
 - Twitch? : this one -> [**Twitch**](https://www.twitch.tv/rustycatasfd)
