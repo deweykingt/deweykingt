@@ -1,6 +1,9 @@
 # *deweykingt Skin*
 - # DISCLAIMER!!
 [**the skin will be update if i won't lazy**]
+# [whypan dewey edit](https://drive.google.com/file/d/1y62cPlwRYW8XJ5UwTMVCudCS9pya_8HD/view?usp=sharing)
+![](https://github.com/deweykingt/deweykingt/assets/120316888/9c56ec54-0885-4274-bc1b-b4b0107848ba)
+
 # [- 『XooMoon』 -](https://drive.google.com/file/d/1Qa6jSRAVt8JnR1NDEBdpzoU9s9f0HuXE/view?usp=sharing)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/9905cbbe-4201-4955-9814-26ba43817dea)
 
