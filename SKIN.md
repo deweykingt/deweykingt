@@ -1,6 +1,9 @@
 # *deweykingt Skin*
 - # DISCLAIMER!!
 [**the skin will be update if i won't lazy**]
+# [Varv+dewey(edit)](https://drive.google.com/file/d/1VdsgfASSv9B1R6CnQRMEcjG513_-Zdim/view?usp=sharing)
+![](https://github.com/deweykingt/deweykingt/assets/120316888/928dadb7-02c4-489d-b977-298f6d5979ef)
+
 # [whypan dewey edit](https://drive.google.com/file/d/1y62cPlwRYW8XJ5UwTMVCudCS9pya_8HD/view?usp=sharing)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/9c56ec54-0885-4274-bc1b-b4b0107848ba)
 
