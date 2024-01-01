@@ -1,6 +1,9 @@
 # *deweykingt Skin*
 - # DISCLAIMER!!
 [**the skin will be update if i won't lazy**]
+# [[enri] tekkito hypno cursor for fun](https://drive.google.com/file/d/1KYXdeJHj938-wOo-RvA5lzU0fjgutIYz/view?usp=sharing)
+![](https://github.com/deweykingt/deweykingt/assets/120316888/530d36f2-44f0-46fe-bf7d-b5e580446c91)
+
 # [Varv+dewey(edit)](https://drive.google.com/file/d/1VdsgfASSv9B1R6CnQRMEcjG513_-Zdim/view?usp=sharing)
 ![](https://github.com/deweykingt/deweykingt/assets/120316888/928dadb7-02c4-489d-b977-298f6d5979ef)
 
